@@ -1,1 +1,1 @@
-# -Research-Consortium-in-Speckled-Computing
+# Research-Consortium-in-Speckled-Computing
